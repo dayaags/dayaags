@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @dayaags
+- 👀 I’m interested in coding and discovering ideas alot!!
+- :)
